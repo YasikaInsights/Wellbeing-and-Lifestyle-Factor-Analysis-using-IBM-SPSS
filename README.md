@@ -1,0 +1,1 @@
+# Wellbeing-and-Lifestyle-Factor-Analysis-using-IBM-SPSS
